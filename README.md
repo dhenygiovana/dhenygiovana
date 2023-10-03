@@ -1,3 +1,4 @@
+
 bem-vindos galeirinha 
 
 meu nome é Djenefer Giovana 
@@ -6,6 +7,7 @@ meu nome é Djenefer Giovana
 -  estou começando a treinar vôlei 🏐
 -  meu momento livre gosto de escutar músicas 🎶
 
-:
+📫 djenefer.oliveira@escola.pr.gov.br
 
 
+![](https://media.tenor.com/NOGjHRHDL_cAAAAC/naruto-uzumaki-naruto.gif)
